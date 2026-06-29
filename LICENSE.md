@@ -1,4 +1,4 @@
-
+run for brainrots Script updated is the best run for brainrots Script, featuring auto-sell and auto-farm. Safe and powerful for all your needs.
 
 
 
